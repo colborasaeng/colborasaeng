@@ -4,7 +4,7 @@
 - Hola, soy **@colborasaeng** >o< 👋
 - 🌱 Estudiante de PFLC 
 - 👀 Capacitación de TICS
-- 💞️ KTH
+- 💞️ KTH, bangtan y Mitski los qm ^^
 - 📫 @colborasaeng en casi todas mis redes creo
 
 **Horario de clases**
