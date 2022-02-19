@@ -18,3 +18,5 @@
 ¿Tenía que poner todo el horario o sólo el de esta clase? **pensando...**
 
 ![](https://c.tenor.com/n_s8sKSG9PoAAAAC/omori-omori-jumpscare.gif)
+
+si me ven en la escuela hablenme xfa, no tengo amigos... adoptenme en su grupito TT
