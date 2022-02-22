@@ -15,7 +15,7 @@ estoy en cuarto semestre (también milagrosamente)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 Estudio la capacitación de TICS porque me interesa⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀¿Mejor bangtanista? Yo, claro (@_@)      
 
-la tecnología, espero aprender mucho (｡>﹏<｡)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Yoosung, Jumin and Saeran kinnie...?
+la tecnología, espero aprender mucho (｡>﹏<｡)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Yoosung, Jumin and Saeran kinnie...?
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
@@ -25,7 +25,7 @@ la tecnología, espero aprender mucho (｡>﹏<｡)⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 
 
                      Horario de clases ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀シリアルエクスペリメンツレイン ★
- ⠀⠀⠀⠀⠀⠀ ![](https://64.media.tumblr.com/f631b5953891d5610fa608105e097000/9b7e48066ed0b2cc-2c/s400x600/70a714be14902a56251acacc28be107f81aea8c7.gifv)  ![](https://64.media.tumblr.com/f631b5953891d5610fa608105e097000/9b7e48066ed0b2cc-2c/s400x600/70a714be14902a56251acacc28be107f81aea8c7.gifv)
+![](https://64.media.tumblr.com/f631b5953891d5610fa608105e097000/9b7e48066ed0b2cc-2c/s400x600/70a714be14902a56251acacc28be107f81aea8c7.gifv)  ![](https://64.media.tumblr.com/f631b5953891d5610fa608105e097000/9b7e48066ed0b2cc-2c/s400x600/70a714be14902a56251acacc28be107f81aea8c7.gifv)
 |        | HORA        | MATERIA                          |
 |--------|-------------|----------------------------------|
 | LUNES  | 7:00 - 7:50 | Mantenimiento y Redes de Computo |⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
