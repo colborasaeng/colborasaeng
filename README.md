@@ -29,7 +29,7 @@ la tecnología, espero aprender mucho (｡>﹏<｡)⠀⠀⠀⠀⠀⠀⠀⠀⠀�
 |        | HORA        | MATERIA                          |
 |--------|-------------|----------------------------------|
 | LUNES  | 7:00 - 7:50 | Mantenimiento y Redes de Computo |⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 
-| MARTES | 8:50 -9:40  | Mantenimiento y Redes de Computo |
+| MARTES | 8:50 -9:40  | Mantenimiento y Redes de Computo | 
 | JUEVES | 8:50 - 9:40 | Mantenimiento y Redes de Computo |
 
 ¿Tenía que poner todo el horario o sólo el de esta clase? **pensando...**  ![](https://64.media.tumblr.com/631f90749e53ed1a404c5f7931536f8f/c4e3e555dfb36ea3-9d/s400x600/69c62d9d7104d340560bab29129443db72aba5cd.gifv)
